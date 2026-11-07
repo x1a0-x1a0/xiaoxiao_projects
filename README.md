@@ -18,4 +18,4 @@ Also, die of death model pack isn't mine, and I need to say it.
 
 若有疑問，請至我的discord伺服器
 If you have any questions, please visit my Discord server.
-discord server:  https://discord.gg/WpwkxngUFv
+discord server:  https://discord.gg/4SFgtqYgkU
